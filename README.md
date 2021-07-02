@@ -1,10 +1,7 @@
-- 👋 Hi, I’m @Cn0f1cd
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-
-<!---
-Cn0f1cd/Cn0f1cd is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+Hello,everyone.
+I am 0f1cd(Tist,Just_Peng).
+I from China.
+QQ:2950909106
+TG:@Just_Peng
+Mail:Just_Peng@protonmail.com
+vx:Keyword_P
