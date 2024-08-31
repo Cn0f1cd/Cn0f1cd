@@ -1,7 +1,11 @@
-*Hello,everyone.
+*Age:18 He
 
-*I am 0f1cd.
+*BiliBili/YouTube:@BabyNelier
 
-*TG:@huizhen11
+*TG:@jealousyzzz
+
+*QQ:2950909106
+
+*X:Jealousyzzz
 
 *Website:forever.wang
