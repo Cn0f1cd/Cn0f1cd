@@ -2,7 +2,7 @@
 
 *BiliBili/YouTube:@BabyNelier
 
-*TG:@jealousyzzz
+*TG:@doomsdayzzz
 
 *QQ:2950909106
 
